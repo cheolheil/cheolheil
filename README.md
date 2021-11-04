@@ -4,4 +4,4 @@
 - 🌱 I’m currently learning data science / machine learning / artificial intelligence
 - 🤔 I’m looking for help with 🧑‍🎓Bayesian EXPERTS👩‍🎓
 - 😄 Pronouns: he/him/his
-- 🧡 I love 🎾tennis; 🎷music; 🎮game
+- 🧡 I love 🎾tennis; 🎷music; ☕coffee
